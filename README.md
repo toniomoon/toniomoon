@@ -1,4 +1,4 @@
-# hey, I'm toniomoon 👋
+# welcome to my world 🌒
 
 building in **crypto** × **AI** · open source · self-hosted tools
 
