@@ -1,4 +1,4 @@
-# welcome to my world 🌓
+# welcome 🌙
 
 building in **crypto** × **AI** · open source · self-hosted tools
 
